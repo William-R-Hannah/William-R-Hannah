@@ -9,7 +9,11 @@
 
 👯 I’m looking to collaborate on Data Analytical projects and challenges
 
-📫 How to reach me: brhannah91@gmail.com
+🧠 I love solving puzzles and logic games
+
+🎧 I code best when listening to Horror podcasts
+
+✈️ I’ve visited [13] states and counting! I dream of one day visiting Japan 🌍
 
 😄 Pronouns: He/Him
 
